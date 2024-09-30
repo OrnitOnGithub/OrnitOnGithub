@@ -1,6 +1,6 @@
 # Bio
 
-Sergeant Ornithopter747, Space Marine of the Ultramarines Chapter. I love coding and defending humanity. The emperor is my goat.
+Sergeant Ornithopter747, Space Marine of the Ultramarines Chapter. I love coding and defending humanity. The Emperor is my goat.
 
 # Skills
 
